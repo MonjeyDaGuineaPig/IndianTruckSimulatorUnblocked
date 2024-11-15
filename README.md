@@ -1,1 +1,1 @@
-# https://monjeydaguineapig.github.io/cookieClickerUnblocked.github.io/
+# https://monjeydaguineapig.github.io/CookieClickerUnblocked/
