@@ -1,1 +1,1 @@
-# https://monjeydaguineapig.github.io/CookieClickerUnblocked/
+# https://monjeydaguineapig.github.io/IndiantTruckSimulatorUnblocked/
