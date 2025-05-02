@@ -1,1 +1,1 @@
-# https://monjeydaguineapig.github.io/IndiantTruckSimulatorUnblocked/
+# https://monjeydaguineapig.github.io/IndianTruckSimulatorUnblocked/
